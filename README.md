@@ -28,6 +28,8 @@
 
 ![sourdough image](/images/IMG_8857.jpeg)
 
+https://user-images.githubusercontent.com/5504953/147990738-2a1633b6-0e1b-4655-9906-fd97be73f47b.MOV
+
 ![sourdough image](/images/IMG_8859.jpeg)
 
 ![sourdough image](/images/IMG_8861.jpeg)
@@ -37,6 +39,8 @@
 ![sourdough image](/images/IMG_8867.jpeg)
 
 ![sourdough image](/images/IMG_8869.jpeg)
+
+
 
 ![sourdough image](/images/IMG_8873.jpeg)
 
@@ -61,6 +65,8 @@
 ![sourdough image](/images/IMG_8916.jpeg)
 
 ![sourdough image](/images/IMG_8918.jpeg)
+
+https://user-images.githubusercontent.com/5504953/147990913-3d8b1ef8-ecf5-45db-9bfe-fe6b8c506b14.MOV
 
 ![sourdough image](/images/IMG_8923.jpeg)
 
