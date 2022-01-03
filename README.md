@@ -1,4 +1,4 @@
-# Sourdough Starter
+# Making Sourdough Bread
 
 ![sourdough image](/images/IMG_8833.jpg)
 
