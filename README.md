@@ -54,19 +54,28 @@ The dough will get smoother and puffier as time goes.  I usually pop the very la
 Here is a video demonstrating the stretch and fold technique I use.
 https://user-images.githubusercontent.com/5504953/147990738-2a1633b6-0e1b-4655-9906-fd97be73f47b.MOV
 
+i use 2 small 7" round bannetons for this recipe. (round because I have a round dutch oven)  I also have a set of 9" oblong bannetons that work well in my oval shaped dutch oven) When bannetons are new they need to pre seasoned with rice flour (I spritzed it with water and added lots of rice flour)  Generallly you do not want to wet your or wash your bannetons.  They can be cleaned by simply brushing out the old flour or simply shake out the excess and let it dry completely between uses.  With each use, prepare your banneton by sprinkling in fresh rice flour. (note regular flour will become dough and stick to the banneton)  You need to use rice flour or perhaps corn flour)
+
 ![sourdough image](/images/IMG_8859.jpeg)
 
 ![sourdough image](/images/IMG_8861.jpeg)
 
+When the dough is ready (around 6 hours, I divide it in half as evenly as possible and perform my last stretch and fold as I shape the dough..  You can pull a windowpane to see if the bulk fermentation is done), 
 ![sourdough image](/images/IMG_8863.jpeg)
 
 ![sourdough image](/images/IMG_8867.jpeg)
 
+I use just a small amount of all purpose flour on my work surface - do not use too much as you need the stickiness of the dough to help in shaping the boules.
 ![sourdough image](/images/IMG_8869.jpeg)
 
+Here is a video demonstrating my method for shaping the boules.  There are many different ways to do this - I choose to do the least amount of fussing - it works for me.
 https://user-images.githubusercontent.com/5504953/147991566-ce97cc74-542e-4a5d-8704-b47f74af4b3a.mp4
 
+Be sure to use rice flour on the surface of the dough before putting on the linen covers to prevent sticking as the dough continues to rise.  
 ![sourdough image](/images/IMG_8873.jpeg)
+
+I then wrap each banneton loosely in a plastic bag so the dough does not dry out.
+If the room temperature is on the cooler side I leave the dough on the counter for an additional hour to continue fermentation.  If not, I put it directly into the refridgerator overnight.  This is called a cold retardation.  It serves to build flavor and slows down the fermentation as you dont want to overproof your bread.  I leave it in the fridge until I'm ready the next day to bake the loaves.  (I have gone 2 days with success but have not tried longer).
 
 ![sourdough image](/images/IMG_8874.jpeg)
 
