@@ -16,15 +16,20 @@ Mix motherdough with water in your container
 
 ![sourdough image](/images/IMG_8833.jpg)
 
+
+
 ![sourdough image](/images/IMG_8837.jpeg)
 
 ![sourdough image](/images/IMG_8839.jpeg)
 
+add dry ingredients and mix into a shaggy dough
 ![sourdough image](/images/IMG_8840.jpeg)
 
 ![sourdough image](/images/IMG_8841.jpeg)
 
+cover dough and let rest 1 1/2 hours
 ![sourdough image](/images/IMG_8843.jpeg)
+
 
 ![sourdough image](/images/IMG_8846.jpeg)
 
