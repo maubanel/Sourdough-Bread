@@ -1,5 +1,13 @@
 # Making Sourdough Bread
 
+Recipe:
+Motherdough made 5-14 days earlier and kept in the fridge.  85g starter, 85g water, 170g flour mix (50/50 all purpose/whole wheat bread flour)
+460g water
+530g bread flour
+100g whole wheat bread flour
+50g rye flour
+17g salt (sea salt)
+
 ![sourdough image](/images/IMG_8833.jpg)
 
 ![sourdough image](/images/IMG_8837.jpeg)
