@@ -11,7 +11,8 @@ Recipe:
 * 50g rye flour
 * 17g salt (sea salt)
 
-Weigh out and premix dry ingredients
+Weigh out and premix dry ingredients.
+
 Mix motherdough with water in your container
 
 ![sourdough image](/images/IMG_8833.jpg)
@@ -22,15 +23,17 @@ Mix motherdough with water in your container
 
 ![sourdough image](/images/IMG_8839.jpeg)
 
-add dry ingredients and mix into a shaggy dough
+Add dry ingredients and mix into a shaggy dough.
 ![sourdough image](/images/IMG_8840.jpeg)
 
 ![sourdough image](/images/IMG_8841.jpeg)
 
-cover dough and let rest 1 1/2 hours
+Cover dough and let rest 1 1/2 hours.
 ![sourdough image](/images/IMG_8843.jpeg)
 
+Wet your hands and stretch and fold the dough 4 times (from each side of the container).  Then flip your dough upside down.
 
+Set your timer for another 1 1/2 hours and repeat the stretch and fold.  Do 4 sets of stretch and folds over 6 hours (bulk fermentation)
 ![sourdough image](/images/IMG_8846.jpeg)
 
 ![sourdough image](/images/IMG_8847.jpeg)
@@ -45,8 +48,10 @@ cover dough and let rest 1 1/2 hours
 
 ![sourdough image](/images/IMG_8856.jpeg)
 
+The dough will get smoother and puffier as time goes.  I usually pop the very large air bubbles as I go.
 ![sourdough image](/images/IMG_8857.jpeg)
 
+Here is a video demonstrating the stretch and fold technique I use.
 https://user-images.githubusercontent.com/5504953/147990738-2a1633b6-0e1b-4655-9906-fd97be73f47b.MOV
 
 ![sourdough image](/images/IMG_8859.jpeg)
