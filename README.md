@@ -109,6 +109,7 @@ Remove the banneton from your loaf and smooth out any remaining rice flour.
 ![sourdough image](/images/IMG_8918.jpeg)
 
 Take your preheated dutch oven out of the oven and open it up in preparation for your bread.  Wet your lame blade and score your loaf.  Here is a video showing my method.  I go at about a 30 degree angle.  Cold dough from the fridge is much easier to score than room temperature.
+
 https://user-images.githubusercontent.com/5504953/147990913-3d8b1ef8-ecf5-45db-9bfe-fe6b8c506b14.MOV
 
 Carefully lift the scored dough onto or into the base of your dutch oven.  I usually add about 4 icecubes or spritz the dough a few times with a water sprayer.  I didn't have any for this bread so did without.  The idea is to build as much steam as possible in the dutch oven which in turn helps give your dough a great oven rise.  People often comment that cold dough has a little extra steam to give as well. 
