@@ -53,7 +53,7 @@ The dough will get smoother and puffier as time goes.  I usually pop the very la
 
 Here is a video demonstrating the stretch and fold technique I use.
 
-https://user-images.githubusercontent.com/5504953/147990738-2a1633b6-0e1b-4655-9906-fd97be73f47b.MOV
+https://user-images.githubusercontent.com/5504953/148302646-5cbf4d7d-2b30-4081-9c54-03b1a9781647.mp4
 
 i use 2 small 7" round bannetons for this recipe. (round because I have a round dutch oven)  I also have a set of 9" oblong bannetons that work well in my oval shaped dutch oven) When bannetons are new they need to pre seasoned with rice flour (I spritzed it with water and added lots of rice flour)  Generallly you do not want to wet your or wash your bannetons.  They can be cleaned by simply brushing out the old flour or simply shake out the excess and let it dry completely between uses.  With each use, prepare your banneton by sprinkling in fresh rice flour. (note regular flour will become dough and stick to the banneton)  You need to use rice flour or perhaps corn flour)
 
@@ -110,7 +110,7 @@ Remove the banneton from your loaf and smooth out any remaining rice flour.
 
 Take your preheated dutch oven out of the oven and open it up in preparation for your bread.  Wet your lame blade and score your loaf.  Here is a video showing my method.  I go at about a 30 degree angle.  Cold dough from the fridge is much easier to score than room temperature.
 
-https://user-images.githubusercontent.com/5504953/147990913-3d8b1ef8-ecf5-45db-9bfe-fe6b8c506b14.MOV
+https://user-images.githubusercontent.com/5504953/148302906-0ea3a24a-d02a-45c1-be48-af40e1b0df02.mp4
 
 Carefully lift the scored dough onto or into the base of your dutch oven.  I usually add about 4 icecubes or spritz the dough a few times with a water sprayer.  I didn't have any for this bread so did without.  The idea is to build as much steam as possible in the dutch oven which in turn helps give your dough a great oven rise.  People often comment that cold dough has a little extra steam to give as well. 
 
